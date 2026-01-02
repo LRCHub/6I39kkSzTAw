@@ -1,0 +1,63 @@
+# Yo-Sea – Wonderland
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Rainy days and washed out scenes
+Vivid lights become routine
+君がいない間に
+消えてゆくメロディ
+涙の彼方
+The answer seems so easy now
+Love's a fairy tale my friend
+I want a happy end
+Bright lights burn blue
+Dreams might come true
+あなたの夢
+分かってたはずなのに
+糸がほつれて
+それでも愛して
+強く抱きしめる
+遅くなる前に
+Take me, take me by the hand
+Save me from this hologram
+I wanna hear my wish is
+your command
+Set me free from
+one hit wonderland…
+初雪、溶け出す前の約束
+離れていくのよ僕を置いて
+次の電車で君の待つ場所までさ
+行かないと、can't hold on to you
+Bright lights burn blue
+Dreams might come true
+あなたのこと
+分かってたはずなのに
+糸がほつれて
+それでも愛して
+強く抱きしめる
+時が去る前に
+Take me, take me by the hand
+Save me from this hologram
+I wanna hear my wish is
+your command
+Set me free from
+one hit wonderland
+It must be nice
+I tell myself as I watch lovers
+as they go by
+Oh I hope that
+I meet my dreamy lover tonight
+Take me, take me by the hand
+Save me from this hologram
+I wanna hear my wish is
+your command
+Set me free from
+one hit wonderland
+Take me, take me by the hand
+Save me from this hologram
+I wanna hear my wish is
+your command
+Set me free from
+one hit wonderland…
+```
